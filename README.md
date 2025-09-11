@@ -1,14 +1,14 @@
 
 
-### Do reach:
+### 🔗 Do reach:
 [email](mailto:gollameghana33@gmail.com)
 
-##  My Current Stats:
+## 🔗 My Current Stats:
 🤫 I’m currently working on a project so secret, even my tea doesn’t know about it ☕<br>👯 I’m looking to collaborate on mind-bending ideas that sound impossible (until we build them)<br>🤝 I’m looking for help with ideas that challenge the ordinary<br>🌸 I’m currently learning how AI and creativity can push boundaries<br>💬 Ask me about why curiosity is my superpower, or how I turn chaos into code<br>⏳ Fun fact : Most of my best ideas come at 3AM
 
 
 
-## 💻 I code with:
+## 🔗 I code with:
 
 
 <div align="left">
